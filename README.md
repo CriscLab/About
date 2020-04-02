@@ -9,6 +9,7 @@
 
 ## Who We Are
 
+![PHOTO-2020-04-02-13-49-08](https://user-images.githubusercontent.com/59631555/78293285-fa156a00-74ed-11ea-9496-dfd4fb6f6302.jpg)
   
 ## What We Do
 
